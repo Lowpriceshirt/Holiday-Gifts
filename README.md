@@ -1,1 +1,1 @@
-# Holiday-Gifts
+Holiday Gifts - Whether you’re looking for the perfect gift for everyone on your list or something special to treat yourself, our holiday collection has you covered. Your holiday gifts can make all the difference this year, so shop our curated collection of gifts for everyone on your list. Choose thoughtful presents for friends, family members and clients and make the holiday season extra special. - https://lowpriceshirt.com/the-holiday-shop/
